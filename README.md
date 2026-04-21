@@ -6,9 +6,9 @@
 
 <br>
 
-🌍 &nbsp;Apaixonado por soluções de **acessibilidade e inclusão**  
-💡 &nbsp;Acho incrível a computação — do conceito à prática  
-🟩 &nbsp;Amo **Minecraft** e **open-source**  
+🌍 &nbsp;Apaixonado por soluções de acessibilidade e inclusão
+💡 &nbsp;Acho incrível a computação do conceito à prática  
+🟩 &nbsp;Amo Minecraft e open-source  
 
 <br>
 
